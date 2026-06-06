@@ -1,0 +1,1 @@
+Gousic KP portfolio
